@@ -1,0 +1,1 @@
+# biblia-takatifu-privacy
